@@ -2,4 +2,4 @@
 
 Hello Everyone
 
-## Hope you have and amazing rest of your day!!
+## Hope you have an amazing rest of your day!!
